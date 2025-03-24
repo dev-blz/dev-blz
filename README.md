@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c# and possibly c++ later
 - 💞️ I’m looking to collaborate on possibly not now tho but a working game or software
 - 📫 How to reach me for now
-- 😄 Pronouns: tf is a pronoun? I'm a man nothing more nothing less
+- 😄 Pronouns: huh?
 - ⚡ Fun fact: I wanna do everything idk why....
 
 <!---
